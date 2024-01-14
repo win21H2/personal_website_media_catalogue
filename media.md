@@ -7,3 +7,7 @@
 ![20231014_235427](https://github.com/win21H2/personal_website_media_catalogue/assets/92825997/0a6f60a4-7e4b-4b11-a961-4668a40cb778)
 
 ![20230806_114727](https://github.com/win21H2/personal_website_media_catalogue/assets/92825997/d85d8d04-9637-435e-b6b4-01818a2ad491)
+
+
+![pinout tauw](https://github.com/win21H2/personal_website_media_catalogue/assets/92825997/a39b9912-c812-4b2f-b749-b6405b43db79)
+
